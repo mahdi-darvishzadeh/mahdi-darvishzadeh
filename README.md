@@ -1,4 +1,4 @@
-## Computer Science Student 🧑🏻‍💻 - Backend Developer
+## Computer Engineering Student 🧑🏻‍💻 - Backend Developer
 
 ### i ❤️ to be challenged
 
